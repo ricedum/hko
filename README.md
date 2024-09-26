@@ -1,4 +1,4 @@
-** 사전 논설문 작성 연습 사진 링크 **
+**사전 논설문 작성 연습 사진 링크**
 
 https://drive.google.com/file/d/1mBj1CoEwrfP6Al4bdG8bC_6iiIaFudTA/view?usp=drivesdk
 
