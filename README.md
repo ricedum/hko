@@ -1,6 +1,10 @@
+** 사전 논설문 작성 연습 사진 링크 **
+
 https://drive.google.com/file/d/1mBj1CoEwrfP6Al4bdG8bC_6iiIaFudTA/view?usp=drivesdk
 
 https://cdn.discordapp.com/attachments/1134047628905164830/1288921361741516851/20240926_104002.jpg?ex=66f6f10f&is=66f59f8f&hm=408011fb7676e3274f936385b686462151fc430b971d0345ff5f212c64310368&
+
+--------------------------
 
 **패스트패션의 문제점에 대한 논설문**
 
